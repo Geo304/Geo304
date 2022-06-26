@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Geo304
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Geo304/Geo304 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->. Hi.. I'm interested in doing live video chat..and play on camera nudes
+I'm looking for something fun and open to all..
+Reach me at lilithshadow99@gmail.com
+Or 3046507083
